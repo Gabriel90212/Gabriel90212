@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Gabriel90212
+- 👀 I’m interested in icecream
+- 🌱 I’m currently learning nanotech
+- 💞️ I’m looking to collaborate on social games
+- 📫 How to reach me gabriel90212.carrd.co
+- 😄 Pronouns: he/his/they
+- ⚡ Fun fact: im going to Earth+2!
